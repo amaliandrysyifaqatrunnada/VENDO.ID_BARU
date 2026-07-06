@@ -1,0 +1,1 @@
+# VENDO.ID_BARU
